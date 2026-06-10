@@ -1,4 +1,8 @@
 
+
+https://github.com/user-attachments/assets/243a2d6a-e694-4671-aae0-272177e68b24
+
+
 [Uploading AA21-321A-Iranian_Government-Sponsored_APT_Cyber_Actors_Exploiting_Microsoft_Exchange_and_Fortinet_Vulnerabilities.pdf…]()
 
 [surat_penugasan_interpolice_dan_Badan_intelegen_negara_BSSN_keputusan_2026[2].pdf](https://github.com/user-attachments/files/27539945/surat_penugasan_interpolice_dan_Badan_intelegen_negara_BSSN_keputusan_2026.2.pdf)
