@@ -1,6 +1,8 @@
 <h2>cyberw1ry4 (Sandbox) | Promotional Messaging Examples</h2>
 <h3>data-page-type: 'product' and 'homepage' </h3> 
 <hr class="dashed">
+<img width="720" height="1280" alt="FadliWiryaWirawan S Kom M S (2)" src="https://github.com/user-attachments/assets/0a4e2d5d-50e2-4f77-aa41-1659ef92cccc" />
+<img width="720" height="1280" alt="avatar-2-2" src="https://github.com/user-attachments/assets/df617fa3-7bd7-4b71-b25f-f2038a80c791" />
 
 <h3>hati hati penghubung pekerjaan kerjasama literasi perusahaan tidak meminta pungli asas intergritas aparat pemerintah , personalia dan asas agama budaya maupun keluarga intinya pertemuan dan cara menempati tata ruang hubungi sejenis intranet dan nyata dalam technology touch screen  #cyberw1ry4:</h3>
  <ul>
